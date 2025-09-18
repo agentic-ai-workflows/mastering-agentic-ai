@@ -73,3 +73,15 @@ Would you like to begin with the **first one**, or pick one for a **freelancing 
 like HR, marketing, or education?
 
 Let’s build step-by-step 🚀
+
+
+---
+
+## ✍️ Signature
+✍️ **Created & Curated by**  
+**Muhammad Naveed Ishaque (Eks2)**  
+*Content Creator | AI Writer | Narrative Simplifier*  
+
+🕊️ **Siraat AI Academy**  
+*"The Straight Path — Empowering minds with clarity, illuminating paths with purpose."*  
+
